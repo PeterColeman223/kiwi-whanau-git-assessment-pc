@@ -9,3 +9,5 @@
 
 ## children after grandparents
 - son: mike "black caps & warriors fan "williams (lives in christchurch)
+- grandson: liam (12, future all black, christchurch)
+- granddaughter: mia (8 white ferns fanatic)
