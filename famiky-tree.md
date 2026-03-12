@@ -9,7 +9,10 @@
 
 ## children
 - son: mike "black caps & warriors fan "williams (lives in christchurch)
-- grandson: liam (12, future all black, christchurch)
-- granddaughter: mia (8 white ferns fanatic)
 - daughter: sarah "ufc fan" williams (lives in queenstown, israel adesanya supporter)
 - son: rangi "black ferns and all blacks diehard" william (lives in dunedin)
+
+
+## children after grandparents
+- grandson: liam (12, future all black, christchurch)
+- granddaughter: mia (8 white ferns fanatic)
