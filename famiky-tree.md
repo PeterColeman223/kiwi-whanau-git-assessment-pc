@@ -5,4 +5,7 @@
 - grandma: ana "white ferns supporter" williams (wellington)
 
 ## family traditions
-- weekend bbqs watching the all blacks
+- weekend bbqs watching the all blacks and ufc fights
+
+## children
+- daughter: sarah "ufc fan" williams (lives in queenstown, israel adesanya supporter)
